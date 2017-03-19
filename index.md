@@ -1,3 +1,3 @@
 ## Welcome to the page of PunkIslamist
 
-This page shall serve as a showcase of my grandiose programming achievements. Once I have some.
+There is no content yet. Still working through that tutorial.
